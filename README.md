@@ -1,0 +1,2 @@
+# HunterSucksToo
+GitHub Pages
